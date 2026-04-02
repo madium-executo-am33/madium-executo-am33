@@ -1,4 +1,4 @@
-
+Free secr rocket executor | auto-execute + inf-scripts brings you the best free scripts for rocket executor, featuring auto-execute and inf-scripts. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
